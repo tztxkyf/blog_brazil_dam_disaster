@@ -1,4 +1,4 @@
-#巴西尾矿坝溃坝事故
+# 巴西尾矿坝溃坝事故
 
 造成三百多人死亡或失踪的巴西淡水河谷公司(Vale)尾矿坝溃坝事故(Brumadinho dam disaster)国内似乎鲜有关注. 事故发生在当地时间1日25日12时28分,一千多万方的矿渣倾泻而下,最高时速达到了70km/h. "我们都觉得坝里(的矿渣)是干的,从表面看像足球场一样,又硬又实,绝不是像和稀泥一样." ([bbc专题](https://www.bbc.co.uk/news/resources/idt-sh/brazil_dam_disaster))
 
